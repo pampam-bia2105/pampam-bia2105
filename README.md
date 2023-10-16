@@ -5,12 +5,12 @@
 
 Here are some ideas to get you started:
 
-- Gosto de cantar...
+- Gosto de cantar
 - 15y
 - Amo ler
 - Gosto de ir a praia e tomar sol
 - Sou cristã
 - Minha cor favorita é azul
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ela/dela
+- Sou extrovertida 
 
