@@ -12,5 +12,6 @@ Here are some ideas to get you started:
 - Sou cristã
 - Minha cor favorita é azul
 - ela/dela
-- Sou extrovertida 
+- Sou extrovertida
+- Muito bem casada
 
